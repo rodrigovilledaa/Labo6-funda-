@@ -1,1 +1,1 @@
-# Labo6-funda-
+parcial
